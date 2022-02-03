@@ -1,6 +1,6 @@
 ### Oiiii! Eu sou o Bruno Barboza
 
-- 🌱 Esto fazendo faculdade de Ciência da Computação
+- 🌱 Apenas um estudante!
 - 😄 Pronouns: ele/dele
 
 <div align="center">
